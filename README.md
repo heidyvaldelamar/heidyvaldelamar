@@ -1,2 +1,0 @@
-# heidyvaldelamar.io
-GitHub profile.
